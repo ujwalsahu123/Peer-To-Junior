@@ -17,3 +17,6 @@ there is no pltform where i can search for a clg and then see how is it , clubs 
 
 every college has a library - lets use it for excellence . 
 ........
+
+Read ragright chatgpt . 
+this peer to junior is a good idea (ragright)  .i also think that there can is a space for college community platform . and ragright can be a nice property of it . 
